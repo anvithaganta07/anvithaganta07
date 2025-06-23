@@ -29,7 +29,7 @@
 ## 📫 Let’s Connect
 
 - [LinkedIn](https://www.linkedin.com/in/anvitha-ganta-51a3421a7?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BzKelDkphTSKuV5Lb2xVSxg%3D%3D)
-- [Email](anvithaganta07@gmail.com) 
+- [Email](mailto:anvithaganta07@gmail.com) 
 
 ---
 
